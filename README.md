@@ -1,6 +1,7 @@
-- i dont rlly like nrmt, poolvrn or scogn but idm if ur not annoying abt it!! just as long as u dont shit talk my favs lol
-- dni : basic, zionists, ppl who obsess over lolcows (cwc, dl etc) ,movie exclusive wolverine fans, sh/ed twt mfs 
-- fandms : ace attorney, x-men, american psycho, fight club, GOTG, TDI, Beastars, BCS, persona
+- haii pls read!!!
+- i speak polish and english, however my polish might not be the best, pls bear with me!!
+- dni : basic, zionists, ppl who obsess over lolcows (cwc, dl etc) ,movie exclusive wolverine fans (if u only like hj's wolv), sh/ed twt mfs
+- i also wanna add PLEASEEE do not int with me if you ship sabrevine, i've read majority of the comics and i dont care wether theyre not canonically brothers (i dont mind platonic sabretooth/wolverine stuff)
+- fandms : ace attorney, marvel (GOTG and X-men), american psycho, fight club, GOTG, TDI, Beastars, BCS, persona, TBBT, 
 - fandms im not active in : clone high , scott pilgrim, disenchantment, sonic 
-- ships i like.. : gumwrth ,logurt, blackbright, franmaya, harushi, duntrent, jomaria, bateruthers,
-  
+- ships i like.. : gumwrth ,logn/kurt/ororo (together and seperately), blackbright, franmaya, harushi, jomaria (there are lots i fw, however these are the ones that i like the most)
