@@ -1,7 +1,7 @@
 - haii pls read!!!
 - i speak polish and english, however my polish might not be the best, pls bear with me!!
-- dni : basic, zionists, ppl who obsess over lolcows (cwc, dl etc) ,movie exclusive wolverine fans (if u only like hj's wolv), sh/ed twt mfs
-- i also wanna add PLEASEEE do not int with me if you ship sabrevine, i've read majority of the comics and i dont care wether theyre not canonically brothers (i dont mind platonic sabretooth/wolverine stuff)
+- dni : basic, zionists, proshippers, ppl who obsess over lolcows (cwc, dl etc) , people who make excessive sexual jokes, sh/ed twt mfs,
+- i also wanna add PLEASEEE do not int with me if you specifically ship sabrevine, maya or mia/phoenix, kay/edgeworth, etc . . .
 - fandms : ace attorney, marvel (GOTG and X-men), american psycho, fight club, GOTG, TDI, Beastars, BCS, persona, TBBT, 
 - fandms im not active in : clone high , scott pilgrim, disenchantment, sonic 
 - ships i like.. : gumwrth ,logn/kurt/ororo (together and seperately), blackbright, franmaya, harushi, jomaria (there are lots i fw, however these are the ones that i like the most)
