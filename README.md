@@ -1,7 +1,7 @@
 - haii pls read!!!
-- i speak polish and english, however my polish might not be the best, pls bear with me!!
-- dni : basic, zionists, proshippers, ppl who obsess over lolcows (cwc, dl etc) , people who make excessive sexual jokes, sh/ed twt mfs,
-- i also wanna add PLEASEEE do not int with me if you specifically ship sabrevine, maya or mia/phoenix, kay/edgeworth, etc . . .
-- fandms : ace attorney, marvel (GOTG and X-men), american psycho, fight club, GOTG, TDI, Beastars, BCS, persona, TBBT, 
-- fandms im not active in : clone high , scott pilgrim, disenchantment, sonic 
-- ships i like.. : gumwrth ,logn/kurt/ororo (together and seperately), blackbright, franmaya, harushi, jomaria (there are lots i fw, however these are the ones that i like the most)
+- i speak polish and english 🇵🇱
+- i dont bite, dont be afraid to come up to me if you want to interact or say smth! :-) 
+- i like indulging in all forms of art and console modding !
+- dni : basic, zionists, proshippers, ppl who obsess over lolcows (cwc, dl etc) , people who make excessive sexual jokes, sh/ed twt mfs, people who start unnecessary discourse/drama and ship wars it is NOT that srs.
+- fav characters from medias ! - dick gumshoe + trucy wright+ miles edgeworth (ace attorney), wolverine (xmen, i promise im not onenof those weird fans LOL i exclusively read the comics and dont use tiktok), byron + colette (brawl stars), rocket raccoon (gotg) , duncan + jo (tdi), kim wexler (bcs) chie + yosuke (persona), leonard hofstadter (tbbt)
+  
