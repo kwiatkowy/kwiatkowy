@@ -1,6 +1,9 @@
+![image](https://github.com/user-attachments/assets/3976c46e-cdcb-4316-9371-0ecb55a3f22e)
+
+
 - haii pls read!!! 
 - i speak polish and english 🇵🇱
 - i dont bite, dont be afraid to come up to me if you want to interact or say smth! :-) ((id also love if you signed my ata!!))
 - i like indulging in all forms of art and console modding !
 - dni : basic, zionists, proshippers, people who start unnecessary discourse/drama and ship wars it really isnt that serious
-- fav characters from medias ! - dick gumshoe + damon gant + trucy wright+ miles edgeworth (ace attorney),  kurt + wolverine (xmen,THOSE tiktok hugh fans dni im so srs.), townsfolk trio (byron barley n piper) + colette (brawl stars), rocket raccoon (gotg) , duncan + jo (tdi), kim wexler (bcs) sojiro sakura + chie + yosuke (persona.. im currently playing thru p5r tho guys 🤞 i love the whole gang), leonard + penny (tbbt) house + remy 13 (house md) , jet black + faye + ed (cowboy bebop)
+- Medias i like!! : Ace attorney, Persona (4 + 5), House MD, Cowboy bebop,  Brawl stars, X-men (im a comics fan, i dont rlly like those tiktok/movie fans sorry 🤞), Guardians of the galaxy, Total drama island, Beastars, Nu pogodi, Project diva + DDR, ill add stuff when i feel like it...
