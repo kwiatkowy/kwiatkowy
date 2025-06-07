@@ -11,7 +11,7 @@
 - dni : basic, zionists, proshippers, people who start unnecessary discourse/drama and ship wars, tcc 
 - interests!! : Ace attorney, Persona 5 + CFB, House MD, Cowboy bebop,  Brawl stars, neon genesis, Guardians of the galaxy, venture bros, Beastars, Nu pogodi, Project diva + DDR, ill add stuff when i feel like it...
 
- ![image](https://github.com/user-attachments/assets/f0ce7c31-925c-435a-8646-1589a1970107)
+![image](https://github.com/user-attachments/assets/d08ddd5d-cd4a-41af-92b4-ad94db415abb)
 
-
+ 
 ![image](https://github.com/user-attachments/assets/794f7c72-d7fc-418f-833e-06ebe7b01e1b)
