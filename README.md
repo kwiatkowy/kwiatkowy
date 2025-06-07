@@ -1,4 +1,7 @@
-![image](https://github.com/user-attachments/assets/3976c46e-cdcb-4316-9371-0ecb55a3f22e)
+![image](https://github.com/user-attachments/assets/38bc3406-daff-4976-a230-155ed56c155d)![image](https://github.com/user-attachments/assets/0ad0f0ee-65da-47c1-ba68-f6a795e5b909)
+
+
+
 
 
 - haii pls read!!! 
