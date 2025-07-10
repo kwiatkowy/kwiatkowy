@@ -3,6 +3,8 @@
 
 
 - that one friend who's too rusty venture
+
+- if your pony is from the same show/game whatever as mine you have full permission to come and sit with me or interact however you like!!
   
 - i dont bite, dont be afraid to come up to me if you want to interact or say smth! :-) i apologise if i may ignore you though its because im most likely offtabbing but i dont mean to be rude
   
